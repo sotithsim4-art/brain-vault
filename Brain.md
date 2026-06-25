@@ -1,0 +1,1 @@
+This is my personal knowledge base where i store notes, ideas, and things I'm learning.
